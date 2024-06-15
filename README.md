@@ -4,7 +4,7 @@
 
 - 💞️ We collaborate on various projects
 
-- 📫 How to reach us:  08121073763
+- 📫 How to reach us:  09030897127, 08121073763
 
 - ⚡ Fun fact: We help you see programming as a fun stuff
 
