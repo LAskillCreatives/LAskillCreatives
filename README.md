@@ -1,7 +1,11 @@
 - 👋 Hi, We're @LAskillCreatives
+
 - 👀 We help you put to Practice what you've been taught.
+
 - 💞️ We collaborate on various projects
-- 📫 How to reach us:  ...
+
+- 📫 How to reach us:  08121073763
+
 - ⚡ Fun fact: We help you see programming as a fun stuff
 
 <!---
